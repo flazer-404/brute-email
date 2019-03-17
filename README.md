@@ -1,0 +1,2 @@
+# brute-gmail
+××××××@gmail.com
